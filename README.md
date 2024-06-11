@@ -1,7 +1,8 @@
 # Cursedtoplay
 
 
-![tumblr_07315ae553713cacbbf50ead2377c24d_adf5db36_2048](https://github.com/Desertflowers/LetsplayAgame/assets/165558471/f4ba1680-392e-4ed3-8636-05cbea81c8b4)
+![tumblr_07315ae553713cacbbf50ead2377c24d_adf5db36_2048](https://github.com/Desertflowers/Cursedtoplay/assets/165558471/9f3fb033-9634-4297-82f6-0e741baa9e9e)
+
 
 -    Robin - Any pronouns -
 
