@@ -7,10 +7,11 @@
 <br>
   Robin - Any pronouns 
 <br>
+
  I try to be chill and welcoming to anyone.Though anxiety is the enemy of socializing. Please never feel afraid to reach out to me tho!
-             whisper to interact.
-  
+             whisper to interact.  
        my interets: Hermitcraft/Life Series, general minecraft,Good omens, Weirdcore/horror,The owl house
+       
 <br>
        
 <p align="center">
