@@ -2,7 +2,7 @@
 </p>
 
 
-<img src="https://pbs.twimg.com/media/GTLr2K5XcAAMCSi?format=jpg&name=large" width="200" height="90"> 
+<img src="https://pbs.twimg.com/media/GTLr2K5XcAAMCSi?format=jpg&name=large" width="400" height="500"> 
 
 <br>
   Robin/ Grian || 24 || Any pronouns ||
