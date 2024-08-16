@@ -9,8 +9,7 @@
   Robin/Grian ☆ 24 ☆ Any pronouns 
 
 <br>
- <img src="![Screenshot_3](https://github.com/user-attachments/assets/25c781b6-1c6f-46b8-ab6c-abe1affd7abe)
- "> 
+ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d972bf90-9636-4c03-b75d-4531ccbd5bf6/dhzcns8-773db37e-2daa-416e-ae61-ee011c688f00.png/v1/fit/w_517,h_397,q_70,strp/screenshot_3_by_itshoshiuwu_dhzcns8-375w-2x.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9Mzk3IiwicGF0aCI6IlwvZlwvZDk3MmJmOTAtOTYzNi00YzAzLWI3NWQtNDUzMWNjYmQ1YmY2XC9kaHpjbnM4LTc3M2RiMzdlLTJkYWEtNDE2ZS1hZTYxLWVlMDExYzY4OGYwMC5wbmciLCJ3aWR0aCI6Ijw9NTE3In1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.0cs8oNcUzZSIq6Qsv6MrzMVU2gnAU-fPOFjEVkcEfcc"> 
  
 <br>
 
