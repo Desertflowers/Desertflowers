@@ -14,8 +14,7 @@ Here to vibe and have a good time.
 I'm Robin/Grian I'm just a mentally ill fellow whos likes sittin on silly game.
 Fairly chill. I dont bite so if we have a shared interest feel free to chat! I enjoy making new friends, Even if i dont respond much im happy to vibe together.
 
-I'm an artist so i will often be less active on pt while working on stuff,But will try and respond as soon as i can. 
-Or im just on another game/Doing other stuff. Just make sure to whisper to interact or i might end up missing it!
+Usually AFK/Not lookin at PT!
 
 <br>
 
