@@ -24,6 +24,8 @@ Fairly chill. I dont bite so if we have a shared interest feel free to chat! I e
 ☆not ok with c+h unless we are close friends 
 
  <br>
+☆DNI: proshippers, dt + ws supporters, minors limit interaction
+ <br>
 
         
 <p align="center">
