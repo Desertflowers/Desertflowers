@@ -2,10 +2,7 @@
 
 ![F8_RBlEWUAEEvUJ](https://github.com/user-attachments/assets/426b0bf3-f898-4e3c-aeea-06092fcfd77d)
 
- Robin/Grian ☆ 24 ☆ Any pronouns 
-
-
-Here to vibe and have a good time.
+ Grian ☆ 24 ☆ Any pronouns 
 <br>
   
 ☆i don't often interact first
