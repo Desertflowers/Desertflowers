@@ -10,10 +10,12 @@
 <br>
  
 ☆ Often AFK/ Offtab
-
+<br>
+Reserved and quiet little bird. I take awhile to open up but when i do i can be rather friendly.
+ I'm  a bit rough around the edges and can be a bit mean or sassy but i mean rather well. I'm not a super social person but happy  listen
 <br>
 
-☆not ok with c+h unless we are close friends 
+☆not ok with c+h unless we are very close
 
  <br>
 ☆DNI: proshippers, dt + ws supporters, minors limit interaction
