@@ -8,18 +8,19 @@
 
 <br>
 
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/bb157539-47b9-4721-863c-6f43862a8f20)
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/bb157539-47b9-4721-863c-6f43862a8f20)
+![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
+
+
+
 <br>
 
  Grian / Ari
 <br>
  20+  He/She/They
 <br>
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) 
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/bb157539-47b9-4721-863c-6f43862a8f20)
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/bb157539-47b9-4721-863c-6f43862a8f20)
+
+![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
+
 <br>
 
 i'm a reserved and quiet little bird. I take awhile to open up but when i do i can be rather friendly.
@@ -27,7 +28,7 @@ i'm a reserved and quiet little bird. I take awhile to open up but when i do i c
  
  <br>
 
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) 
+![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
 
 <br>
 
@@ -40,9 +41,7 @@ i'm a reserved and quiet little bird. I take awhile to open up but when i do i c
  
 <br>
 
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
+![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
 
 <br>
 ☆DNI: proshippers, dt + ws supporters, minors limit interaction
@@ -51,7 +50,7 @@ i'm a reserved and quiet little bird. I take awhile to open up but when i do i c
  
 ![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/ad4346c2-6e3e-4ffc-a433-507b6adffa6f) Please dont C+H me unless we are very close and i give the OK
 
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) 
+![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
 
         
 <p align="center">
