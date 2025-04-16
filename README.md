@@ -22,9 +22,7 @@ Reserved and quiet little bird. I take awhile to open up but when i do i can be 
 <br>
  ☆ Often AFK/ Offtab
 
-<br>
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) Grian  ☆ 24 ☆ She/he/they ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/bb157539-47b9-4721-863c-6f43862a8f20)
- <br>
+![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) 
 ☆DNI: proshippers, dt + ws supporters, minors limit interaction
  <br>
 ☆Please dont C+H me unless we are very close and i give the OK
