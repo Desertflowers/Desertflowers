@@ -22,7 +22,10 @@ i'm a reserved and quiet little bird. I take awhile to open up but when i do i c
  ☆ I am often offtab doing something else you are welcome to Whisper me 
  
 <br>
-![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
+
+![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
+![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
+![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1)
 
 <br>
 ☆DNI: proshippers, dt + ws supporters, minors limit interaction
