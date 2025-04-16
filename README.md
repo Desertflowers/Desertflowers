@@ -13,10 +13,9 @@
 ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/bb157539-47b9-4721-863c-6f43862a8f20)
 <br>
 
-![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/c5d43b64-52ba-4b4a-9433-b8a0d8cfd39b) Grian / Ari
+ Grian / Ari
 <br>
- 20+ ![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/f740ce0a-774c-43b9-9f1f-24fb49d4ed42)
- She/he/they 
+ 20+  He/She/They
 <br>
 ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) 
 ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/bb157539-47b9-4721-863c-6f43862a8f20)
