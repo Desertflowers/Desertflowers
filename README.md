@@ -5,6 +5,7 @@
  Grian ☆ 24 ☆ She/he/they
 
  ☆°•☆°•☆°•☆°•☆°•☆°•☆
+<br>
 Reserved and quiet little bird. I take awhile to open up but when i do i can be rather friendly.
  I'm  a bit rough around the edges and can be a bit mean or sassy but i mean rather well. I'm not a super social person but happy  listen
 
