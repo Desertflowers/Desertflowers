@@ -30,9 +30,13 @@ i'm a reserved and quiet little bird. I take awhile to open up but when i do i c
 ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) 
 
 <br>
-  ☆i wont often interact first
+
+ ![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/ad4346c2-6e3e-4ffc-a433-507b6adffa6f)
+ i wont often interact first as i am rather shy 
 <br>
- ☆ I am often offtab doing something else you are welcome to Whisper me 
+
+![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/73dc06a6-0511-4f4d-9893-3d801d3c5a16)
+  I am often offtab doing something else you are welcome to Whisper me 
  
 <br>
 
@@ -44,7 +48,8 @@ i'm a reserved and quiet little bird. I take awhile to open up but when i do i c
 ☆DNI: proshippers, dt + ws supporters, minors limit interaction
 
  <br>
-☆Please dont C+H me unless we are very close and i give the OK
+ 
+![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/ad4346c2-6e3e-4ffc-a433-507b6adffa6f) Please dont C+H me unless we are very close and i give the OK
 
 ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) ![d77o8rr-89c6f1a5-47cf-4a31-9287-2b1b099a262e](https://github.com/user-attachments/assets/48942f30-ad66-49da-bb31-6058bd6b58b1) 
 
