@@ -1,6 +1,6 @@
 
 
-![F8_RBlEWUAEEvUJ](https://github.com/user-attachments/assets/426b0bf3-f898-4e3c-aeea-06092fcfd77d)
+![F8_RBlEWUAEEvUJ]([https://github.com/user-attachments/assets/426b0bf3-f898-4e3c-aeea-06092fcfd77d](https://i.pinimg.com/originals/3a/31/9f/3a319f27c72b535bab3bb4b1deec381b.gif))
 
  Grian ☆ 24 ☆ She/he/they
 
