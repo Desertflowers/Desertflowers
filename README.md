@@ -1,4 +1,4 @@
-<img src="[https://file.garden/Z3y8p4kSxSo_bbsX/ok%20hold%20don.png](https://file.garden/aA_5BlelMxIUBG_x/Go-XBp0aMAAi03n.jpg)" align="left" style="height: 450px;">
+<img src="https://file.garden/aA_5BlelMxIUBG_x/Go-XBp0aMAAi03n.jpg" align="left" style="height: 450px;">
 <br><br><br>
 
 <br><br><br>
