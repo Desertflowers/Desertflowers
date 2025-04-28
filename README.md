@@ -1,63 +1,12 @@
-        
+<img src="https://file.garden/Z3y8p4kSxSo_bbsX/ok%20hold%20don.png" align="left" style="height: 450px;">
+<br><br><br>
 <p align="center">
+<img src="[https://64.media.tumblr.com/293e73d2691c6639ca5445b6d4c7f08a/8c49db604b0f3002-bb/s100x200/23dd62ea4afc62e3a47b5017e8416c721d1b40e3.png](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5b5712f7-803b-4b98-ba97-749f1a107087/da42u4g-28a31600-c938-4949-b5ac-13f40826f3ef.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzViNTcxMmY3LTgwM2ItNGI5OC1iYTk3LTc0OWYxYTEwNzA4N1wvZGE0MnU0Zy0yOGEzMTYwMC1jOTM4LTQ5NDktYjVhYy0xM2Y0MDgyNmYzZWYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.1nkgGCG1OJT7NKysLYsClRdFuOyYyfyU8PMP5A6l-v0)">  <img src="[https://file.garden/Z3y8p4kSxSo_bbsX/silly%20online.png](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3fa9705b-5056-4828-a553-8e6b976ca3a2/daqvoii-c056a1bc-ba6f-46f1-a96f-dad4084bdecd.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzNmYTk3MDViLTUwNTYtNDgyOC1hNTUzLThlNmI5NzZjYTNhMlwvZGFxdm9paS1jMDU2YTFiYy1iYTZmLTQ2ZjEtYTk2Zi1kYWQ0MDg0YmRlY2QuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.J1lgqo1iy-ABWgZ60niXjFJdSfX-ny9K5Z2-A2f3BH8)">
+<img src="[https://file.garden/Z3y8p4kSxSo_bbsX/not%20immune.png](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/5b5712f7-803b-4b98-ba97-749f1a107087/dah84z5-d63560d3-834e-4c1a-a71e-4c9d250f3682.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzViNTcxMmY3LTgwM2ItNGI5OC1iYTk3LTc0OWYxYTEwNzA4N1wvZGFoODR6NS1kNjM1NjBkMy04MzRlLTRjMWEtYTcxZS00YzlkMjUwZjM2ODIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.hmzrg6EVqDxGh-ou78fX8jGSv8QstEz6r637s1Bww68)"</p>
+<h3 align="center">Grian or Ari ✦ He/She/They ✦ 20+</h3>
+
+<p><b>proshippers, minors, DT/WS related dni.</b> i don't care what you're a fan of just don't bother me with it.
 </p>
-
-![2da38eeb76f29c28b4909389fe77ecd2](https://github.com/user-attachments/assets/5c48e331-d314-4ac3-bfe4-6e9565b43721)
-
-
-
-<br>
-
-![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
-
-
-
-<br>
-
- Grian / Ari
-<br>
- 20+  He/She/They
-<br>
-
-![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
-
-<br>
-
-i'm a reserved and quiet little bird. I take awhile to open up but when i do i can be rather friendly.
- I'm  a bit rough around the edges and can be a bit mean or sassy but i mean rather well. I'm not a super social person and i might forget to reply or not know what to say though im happy to listen
- 
- <br>
-
-![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
-
-<br>
-
- ![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/ad4346c2-6e3e-4ffc-a433-507b6adffa6f)
- i wont often interact first as i am rather shy 
-<br>
-
-![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/73dc06a6-0511-4f4d-9893-3d801d3c5a16)
-  I am often offtab doing something else you are welcome to Whisper me 
- 
-<br>
-
-![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
-
-<br>
-
-![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/73dc06a6-0511-4f4d-9893-3d801d3c5a16) DNI: proshippers, dt + ws/Related media supporters, minors limit interaction
-
- <br>
- 
-![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/ad4346c2-6e3e-4ffc-a433-507b6adffa6f) Please dont C+H me unless we are very close and i give the OK
- <br>
-![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/ad4346c2-6e3e-4ffc-a433-507b6adffa6f) Please be patient with me i take awhile to open up or get comfortable with new people 
- <br>
-![dd1e0sr-6ab12c51-b124-4837-b294-dfd6df6d543a](https://github.com/user-attachments/assets/ad4346c2-6e3e-4ffc-a433-507b6adffa6f) If i do something wrong please talk to me about it. I tend to struggle to notice if i'm doing soemthing wrong 
-<br>
-
-![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)![dipb2br-6415b626-4108-496c-ba06-3e2759a7bd05](https://github.com/user-attachments/assets/7111b2a7-d0ee-43b7-be23-f1e47099c3fc)
-
-        
-<p align="center">
-</p>
+  
+<p><b>i go off-tab often, but you are free  whisper if you want to say something!</b> otherwise i probably wont see/ ignore your message. i'm a reserved and quiet little bird.I take awhile to open up but when i do i can be rather friendly. I'm a bit rough around the edges and can be a bit mean or sassy but i mean rather well. I'm not a super social person and i might forget to reply or not know what to say though im happy to listen.</p>
+<br><br>
