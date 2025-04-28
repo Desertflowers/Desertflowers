@@ -10,7 +10,7 @@
 <p><b>proshippers, minors, DT/WS related dni.</b> i don't care what you're a fan of just don't bother me with it.
 </p>
   
-<p><b>off-tab often,but you are free whisper if you want to say something!</b> otherwise i probably wont see/ignore your message. 
+<p><b>off-tab often,you are free whisper if you want to say something!</b> otherwise i probably wont see/ignore your message. 
 i'm a reserved and quiet little bird.I take awhile to open up but when i do i can be rather friendly.Not super social but happy to listen</p>
 <br><br>
 
