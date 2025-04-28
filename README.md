@@ -14,4 +14,4 @@
 i'm a reserved and quiet little bird.I take awhile to open up but when i do i can be rather friendly. I'm a bit rough around the edges and can be a bit mean or sassy but i mean rather well. I'm not a super social person and i might forget to reply or not know what to say though im happy to listen.!</p>
 <br><br>
 
-<p align="center"><sub>Art is bt <a href="https://x.com/watermlem">watermlem</a>!</sub></p>
+<p align="center"><sub>Art is by <a href="https://x.com/watermlem">watermlem</a>!</sub></p>
