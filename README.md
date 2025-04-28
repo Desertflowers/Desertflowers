@@ -1,8 +1,8 @@
 <img src="https://file.garden/aA_5BlelMxIUBG_x/Go-XBp0aMAAi03n.jpg" align="left" style="height: 450px;">
 <br><br><br>
 <p align="center">
-<img src="https://64.media.tumblr.com/293e73d2691c6639ca5445b6d4c7f08a/8c49db604b0f3002-bb/s100x200/23dd62ea4afc62e3a47b5017e8416c721d1b40e3.png"> <img src="https://file.garden/Z3y8p4kSxSo_bbsX/silly%20online.png">
-<img src="https://file.garden/Z3y8p4kSxSo_bbsX/not%20immune.png"</p>
+<img src="https://64.media.tumblr.com/e1c7965c65dfae4672d4faa730c42c40/a121ab15211be2d3-e0/s100x200/c10b634b48267e487aa65844a41ba8cbd92053ef.png"> <img src="[https://file.garden/Z3y8p4kSxSo_bbsX/silly%20online.png]https://64.media.tumblr.com/4fb3ea158808b4ca44689252908c72ff/a121ab15211be2d3-44/s250x400/ef6f3d9445bad745d6ed324a6eaa5919aea91892.png">
+<img src="https://64.media.tumblr.com/ea3a32a4025099b0acbd059ceecad7fd/a121ab15211be2d3-2b/s100x200/35158681a0a6a70b6465cf668503e20eddcc2f77.png"</p>
 
 
 <h3 align="center">Grian or Ari ✦ He/She/They ✦ 20+</h3>
