@@ -5,13 +5,13 @@
 <img src="https://64.media.tumblr.com/ea3a32a4025099b0acbd059ceecad7fd/a121ab15211be2d3-2b/s100x200/35158681a0a6a70b6465cf668503e20eddcc2f77.png"</p>
 
 
-<h3 align="center">Grian or Ari ✦ He/She/They ✦ 20+</h3>
+<h3 align="center">Grian or Ari ☆ He/She/They ☆ 20+</h3>
 
-<p><b>proshippers, minors, DT/WS related dni.</b> i don't care what you're a fan of just don't bother me with it.
+<p><b>proshippers,minors,DT/WS related dni.</b> i don't care what you're a fan of just don't bother me with it.
 </p>
   
 <p><b>off-tab often,you are free whisper if you want to say something!</b> otherwise i probably wont see/ignore your message. 
-i'm a reserved and quiet little bird.I take awhile to open up but when i do i can be rather friendly.Not super social but happy to listen</p>
+i'm rather reserved and quiet I take awhile to open up but when i do i can be rather friendly.Not super social but happy to listen</p>
 <br><br>
 
 <p align="center"><sub>Art is by <a href="https://x.com/watermlem">watermlem</a>!</sub></p>
