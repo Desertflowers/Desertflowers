@@ -5,7 +5,7 @@
 <img src="https://64.media.tumblr.com/768399a8d236f0c23961ab40e53b367b/e4bc34eee0883fe5-e6/s100x200/9a3a98e29a9080ade83a6a65b7414a1e8b74f82b.gif"</p>
 
 
-<h3 align="center">Grian or Ari ☆ He/She/They ☆ 20+</h3>
+<h3 align="center">Grian /Gri/Ari ☆ He/She/They ☆ 20+</h3>
 
 <p><b>proshippers,minors,DT/WS related dni.</b> i don't care what you're a fan of just don't bother me with it.
 </p>
@@ -16,4 +16,4 @@ i'm rather reserved and quiet I take awhile to open up. Not super social but hap
 ![tumblr_64084f352d1664758e1a4febcb0e4464_6f95cb38_1280](https://github.com/user-attachments/assets/794255dc-8995-46a4-b581-7609bb4e1c16)
 
 <br><br> 
-<p align="center"><sub>Art is by <a href="https://x.com/watermlem">watermlem</a>!</sub></p>
+
