@@ -13,7 +13,7 @@
 <p><b>off-tab often,you are free whisper if you want to say something!</b> otherwise i probably wont see the message. 
 i'm rather reserved and quiet I take awhile to open up. Not super social but happy to listen</p>
 
-<img src="https://64.media.tumblr.com/37d07ae8e83e981dc54e815727b48741/8318dda00cde21ec-72/s540x810/3cbb4b358ae68d77bf1496cb4e9221623ce33cef.gif" align="left" style="height: 450px;">
+<img src="https://64.media.tumblr.com/37d07ae8e83e981dc54e815727b48741/8318dda00cde21ec-72/s540x810/3cbb4b358ae68d77bf1496cb4e9221623ce33cef.gif" align="left" style="height: 50px;">
 
 <br><br> 
 
