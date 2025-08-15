@@ -1,8 +1,8 @@
 <img src="https://64.media.tumblr.com/d30193035833c81e03c9295ae6fc2020/0da4c40d6af52184-9c/s250x400/5a5eefc209714e4ed3256fa6cc9a33130d8a6845.gif" align="left" style="height: 450px;">
 
 <p align="center">
-<img src="https://64.media.tumblr.com/e1c7965c65dfae4672d4faa730c42c40/a121ab15211be2d3-e0/s100x200/c10b634b48267e487aa65844a41ba8cbd92053ef.png"> <img src="https://64.media.tumblr.com/4fb3ea158808b4ca44689252908c72ff/a121ab15211be2d3-44/s250x400/ef6f3d9445bad745d6ed324a6eaa5919aea91892.png">
-<img src="https://64.media.tumblr.com/ea3a32a4025099b0acbd059ceecad7fd/a121ab15211be2d3-2b/s100x200/35158681a0a6a70b6465cf668503e20eddcc2f77.png"</p>
+<img src="https://64.media.tumblr.com/99c3e68fa581a95247c3b6a6b8efe41b/e4bc34eee0883fe5-80/s100x200/f51dd25f4f9177824f6d5f99aa183bcdd1bffdaa.gif"> <img src="https://64.media.tumblr.com/194d49cca50ffd310748682a534fe6a1/e4bc34eee0883fe5-61/s100x200/4b3980fa664575bfe939a75666bb41b42960d9f1.gif">
+<img src="https://64.media.tumblr.com/768399a8d236f0c23961ab40e53b367b/e4bc34eee0883fe5-e6/s100x200/9a3a98e29a9080ade83a6a65b7414a1e8b74f82b.gif"</p>
 
 
 <h3 align="center">Grian or Ari ☆ He/She/They ☆ 20+</h3>
