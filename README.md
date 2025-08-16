@@ -1,3 +1,4 @@
+> <i>proship/related. Minors, DT/WS fans/content DNI. </i>
 <img src="https://64.media.tumblr.com/d30193035833c81e03c9295ae6fc2020/0da4c40d6af52184-9c/s250x400/5a5eefc209714e4ed3256fa6cc9a33130d8a6845.gif" align="left" style="width: 350px;">
 <br>
 <p align="center">
@@ -8,8 +9,7 @@
 
 <h3 align="center">Grian /Gri/Ari ☆ He/She/They ☆ 20+</h3>
 
-<p><b>proshippers,minors,DT/WS related dni.</b> i don't care what you're a fan of just don't bother me with it.
-</p>
+ </p>
   
 <p><b>off-tab often,you are free whisper if you want to say something!</b> otherwise i probably wont see the message. 
 i'm rather reserved and quiet I take awhile to open up. Not super social but happy to listen</p>
@@ -18,4 +18,4 @@ i'm rather reserved and quiet I take awhile to open up. Not super social but hap
 
 <img src="https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/b72c845ab8e2356c-47/s250x400/859668b7b38b700f909199fc09a29dde071e7a44.gif" align="right">
 
-interests lalalala
+interests
