@@ -1,6 +1,6 @@
 > <i>proship/related. Minors, DT/WS fans/content DNI. </i>
 <img src="https://64.media.tumblr.com/d30193035833c81e03c9295ae6fc2020/0da4c40d6af52184-9c/s250x400/5a5eefc209714e4ed3256fa6cc9a33130d8a6845.gif" align="left" style="width: 350px;">
-<br>
+<br> 
 <p align="center">
 <img src="https://64.media.tumblr.com/99c3e68fa581a95247c3b6a6b8efe41b/e4bc34eee0883fe5-80/s100x200/f51dd25f4f9177824f6d5f99aa183bcdd1bffdaa.gif">
   <img src="https://64.media.tumblr.com/e5d30eb231817887b774fb4d52294070/e4bc34eee0883fe5-50/s100x200/b5a9089883849caa76b364fad727cd29210efc76.gif">
@@ -12,7 +12,7 @@
  </p>
   
 <p><b> I am often off-tab.But welcome to whisper though i may not respond!
- </p> I am rather quiet and keep to myself or my friend group that i sit with. It takes me awhile to open up to people please know that its nothing personal.am always happy to listen to a fixation talk even if i'm not into the same thing. I usually just dont have a lot to say in general.
+ </p> I am rather quiet and keep to myself or my friend group that i sit with.It takes me awhile to open up to people please know that its nothing personal. Usually i don't have much to say and is happy to just listen 
 
 <img src="https://64.media.tumblr.com/abfc997879ff71ff06bed4cf52099c8a/36afa839df5dd5b9-df/s400x600/7931213576f10d6bd24248b9d962bef224799573.png" align="right" style="height: 140px;">
  
