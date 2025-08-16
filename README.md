@@ -11,7 +11,7 @@
 
  </p>
   
-<p><b> <b>I am often off-tab.But welcome to whisper<b> </p>
+<p><b> <b>I am often off-tab.But welcome to whisper though i may not respond!<b> </p> I am rather quiet and keep to myself or my  friend group that i sit with. It takes me awhile to open up to people though i am always happy to listen to a fixation talk even if i'm not into the same thing. I usually just dont have a lot to say in general.
 
 <img src="https://64.media.tumblr.com/aa609d5f2bedf4576d38fa778f56dcc9/61fcf01ec6f55cb7-03/s1280x1920/78724f44032440982a710364264c7ac3bb71680a.png" align="left" style="height: 100px;">
 
