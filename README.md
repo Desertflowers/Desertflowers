@@ -11,8 +11,7 @@
 
  </p>
   
-<p><b>off-tab often,you are free whisper if you want to say something!</b> otherwise i probably wont see the message. 
-i'm rather reserved and quiet I take awhile to open up. Not super social but happy to listen</p>
+<p><b> <b>I am often off-tab.But welcome to whisper<b> </p>
 
 <img src="https://64.media.tumblr.com/aa609d5f2bedf4576d38fa778f56dcc9/61fcf01ec6f55cb7-03/s1280x1920/78724f44032440982a710364264c7ac3bb71680a.png" align="left" style="height: 100px;">
 
