@@ -1,4 +1,4 @@
-> <i>proship/related. Minors, DT/WS fans/content DNI. </i>
+> <i>proship/related. Minors, DT/WS fans/content DNI.PLEASE DO NOT CUDDLE UP TO ME IF WE ARE STRANGERS </i>
 <img src="https://64.media.tumblr.com/d30193035833c81e03c9295ae6fc2020/0da4c40d6af52184-9c/s250x400/5a5eefc209714e4ed3256fa6cc9a33130d8a6845.gif" align="left" style="width: 350px;">
 <br> 
 <p align="center">
@@ -12,7 +12,7 @@
  </p>
   
 <p><b> I am often off-tab.But welcome to whisper though i may not respond!
- </p> I am rather quiet and keep to myself or my  friend group that i sit with. It takes me awhile to open up to people though i am always happy to listen to a fixation talk even if i'm not into the same thing. I usually just dont have a lot to say in general.
+ </p> I am  a rather quiet  mildly anxious person that tends to keep to myself or my friend group. It takes me awhile to open up to people though i am always happy to listen to a fixation talk even if i'm not into the same thing. I usually just dont have a lot to say in general.
 
 <img src="https://64.media.tumblr.com/abfc997879ff71ff06bed4cf52099c8a/36afa839df5dd5b9-df/s400x600/7931213576f10d6bd24248b9d962bef224799573.png" width="100%">
  
