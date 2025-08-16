@@ -14,8 +14,8 @@
 <p><b> <b>I am often off-tab.But welcome to whisper though i may not respond!<b> </p> I am rather quiet and keep to myself or my  friend group that i sit with. It takes me awhile to open up to people though i am always happy to listen to a fixation talk even if i'm not into the same thing. I usually just dont have a lot to say in general.
 
 <img src="https://64.media.tumblr.com/abfc997879ff71ff06bed4cf52099c8a/36afa839df5dd5b9-df/s400x600/7931213576f10d6bd24248b9d962bef224799573.png" align="left" style="height: 140px;">
-
+</p> 
 <img src="https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/b72c845ab8e2356c-47/s250x400/859668b7b38b700f909199fc09a29dde071e7a44.gif" align="right">
  
-</p>
+
 Interests: Dandys world,Cookie run, ermitcraft/ Life series,My hero academia ,DanDaDan,Apothecary Diaries, Murder drones, The amazing Digital circus,Overwatch and <b>MUCH<b> More  
