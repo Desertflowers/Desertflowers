@@ -18,4 +18,4 @@
  
 <img src="https://64.media.tumblr.com/689184120cb80df0b5adaa117bb63746/b72c845ab8e2356c-47/s250x400/859668b7b38b700f909199fc09a29dde071e7a44.gif" align="right">
  
- </p>Interests: Dandys world,Cookie run,Hermitcraft/ Life series,My hero academia ,DanDaDan,Apothecary Diaries, Murder Drones, The Amazing Digital Circus,Overwatch and more  
+ </p>Interests:Dandys world,Cookie Run,Hermitcraft/ Life series,My hero academia ,DanDaDan,Apothecary Diaries, Murder Drones, The Amazing Digital Circus,Overwatch and more  
