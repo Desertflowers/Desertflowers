@@ -1,4 +1,4 @@
-> <i>proship/related. Minors, DT/WS fans/content DNI.PLEASE DO NOT CUDDLE UP TO ME IF WE ARE STRANGERS </i>
+> <i>proship/related. Minors, DT/WS fans/content DNI. <b>PLEASE DO NOT CUDDLE UP TO ME IF WE ARE STRANGERS <b></i>
 <img src="https://64.media.tumblr.com/d30193035833c81e03c9295ae6fc2020/0da4c40d6af52184-9c/s250x400/5a5eefc209714e4ed3256fa6cc9a33130d8a6845.gif" align="left" style="width: 350px;">
 <br> 
 <p align="center">
