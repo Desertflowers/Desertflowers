@@ -2,10 +2,8 @@
 <img src="https://file.garden/aA_5BlelMxIUBG_x/223304.gif" align="left" style="width: 350px;">
 <br> 
 <p align="center">
-<img src="https://64.media.tumblr.com/99c3e68fa581a95247c3b6a6b8efe41b/e4bc34eee0883fe5-80/s100x200/f51dd25f4f9177824f6d5f99aa183bcdd1bffdaa.gif">
-  <img src="https://64.media.tumblr.com/e5d30eb231817887b774fb4d52294070/e4bc34eee0883fe5-50/s100x200/b5a9089883849caa76b364fad727cd29210efc76.gif">
-<img src="https://64.media.tumblr.com/768399a8d236f0c23961ab40e53b367b/e4bc34eee0883fe5-e6/s100x200/9a3a98e29a9080ade83a6a65b7414a1e8b74f82b.gif"</p>
-
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0ef0eeab-274c-4e93-b955-868e0d8f464f/dcbpu5n-1b73a9d8-16ae-47b2-9510-33ccd75349ac.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8wZWYwZWVhYi0yNzRjLTRlOTMtYjk1NS04NjhlMGQ4ZjQ2NGYvZGNicHU1bi0xYjczYTlkOC0xNmFlLTQ3YjItOTUxMC0zM2NjZDc1MzQ5YWMucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.UwzOFCvHrIYll58-CPkz_jrGBkxdLEypDlqHNU3y2n4">
+ 
 
 <h3 align="center">Grian /Gri/Ari ☆ He/She/They ☆ 20+</h3>
 
