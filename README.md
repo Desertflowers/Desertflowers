@@ -14,6 +14,6 @@
  </p> I am  a rather quiet  mildly anxious person that tends to keep to myself or my friend group.It takes me awhile to open up to people its nothing personal, I also just dont have much to say in a conversation and would rather let people ramble on. 
 <img src="https://64.media.tumblr.com/abfc997879ff71ff06bed4cf52099c8a/36afa839df5dd5b9-df/s400x600/7931213576f10d6bd24248b9d962bef224799573.png" width="100%">
  
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/147fcdc9-8cee-4d3e-9ba7-51f9c4888b30/damahmv-98f54c76-725b-4a88-865b-39f7bc97e647.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8xNDdmY2RjOS04Y2VlLTRkM2UtOWJhNy01MWY5YzQ4ODhiMzAvZGFtYWhtdi05OGY1NGM3Ni03MjViLTRhODgtODY1Yi0zOWY3YmM5N2U2NDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.70RPMZvSNkkRfe13v02nlYAAm_Mj40nOMR3C9MQRLiU" align="right">
+<img src="https://file.garden/aA_5BlelMxIUBG_x/dgnjwn2-8d6468c6-b795-4e78-b9eb-38df02119a84%20(1).png" align="right">
  
  </p>Interests:Dandys world,Cookie Run,Hermitcraft/ Life series,My hero academia,DanDaDan,Apothecary Diaries,Murder Drones,The Amazing Digital Circus,Overwatch and more 
