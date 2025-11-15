@@ -3,9 +3,10 @@
 <br> 
 <p align="center">
  <img src="https://file.garden/aA_5BlelMxIUBG_x/df7ax1s-a2f17571-8cca-48dc-8047-ecf07e50b820.gif">
-<img src="https://file.garden/aA_5BlelMxIUBG_x/df7ax1s-a2f17571-8cca-48dc-8047-ecf07e50b820.gif">
+<img src=https://file.garden/aA_5BlelMxIUBG_x/df7imu5-0c00c6fc-2d61-40f2-84d9-2d9bd4421064.gif">
  <img src= ">
 
+</p>
 <h3 align="center">Grian /Gri/Ari ☆ He/She/They ☆ 20+</h3>
 
  </p>
