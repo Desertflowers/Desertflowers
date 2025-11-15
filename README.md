@@ -1,5 +1,5 @@
 > <i>proship/related. Minors, DT/WS fans/content DNI. <b>PLEASE DO NOT CUDDLE UP TO ME IF WE ARE STRANGERS <b></i>
-<img src="https://file.garden/aA_5BlelMxIUBG_x/223304.gif" align="left" style="width: 350px;">
+<img src="https://file.garden/aA_5BlelMxIUBG_x/tumblr_1e9b0342e8d3b218d3c80da39c702433_ff83a180_540.jpg" align="left" style="width: 350px;">
 <br> 
 <p align="center">
  <img src="https://file.garden/aA_5BlelMxIUBG_x/dbe956u-9f3e8e7a-f1a9-44b2-8e08-55ea99e8ddee.gif>
