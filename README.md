@@ -12,8 +12,8 @@
   
 <p><b> I am often off-tab.But welcome to whisper though i may not respond!
  </p> I am  a rather quiet  mildly anxious person that tends to keep to myself or my friend group.It takes me awhile to open up to people its nothing personal, I also just dont have much to say in a conversation and would rather let people ramble on. 
-<img src="https://64.media.tumblr.com/abfc997879ff71ff06bed4cf52099c8a/36afa839df5dd5b9-df/s400x600/7931213576f10d6bd24248b9d962bef224799573.png" width="100%">
+<img src="https://file.garden/aA_5BlelMxIUBG_x/dgnjwn2-8d6468c6-b795-4e78-b9eb-38df02119a84%20(1).png" width="100%">
  
-<img src="https://file.garden/aA_5BlelMxIUBG_x/dgnjwn2-8d6468c6-b795-4e78-b9eb-38df02119a84%20(1).png" align="right">
+<img src="https://file.garden/aA_5BlelMxIUBG_x/df7ax1s-a2f17571-8cca-48dc-8047-ecf07e50b820.gif.png" align="right">
  
  </p>Interests:Dandys world,Cookie Run,Hermitcraft/ Life series,My hero academia,DanDaDan,Apothecary Diaries,Murder Drones,The Amazing Digital Circus,Overwatch and more 
