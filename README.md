@@ -2,9 +2,9 @@
 <img src="https://file.garden/aA_5BlelMxIUBG_x/tumblr_1e9b0342e8d3b218d3c80da39c702433_ff83a180_540.jpg" align="left" style="width: 350px;">
 <br> 
 <p align="center">
- <img src="https://file.garden/aA_5BlelMxIUBG_x/df7imu5-0c00c6fc-2d61-40f2-84d9-2d9bd4421064.gif>
-<img src="https://file.garden/aA_5BlelMxIUBG_x/df7ax1s-a2f17571-8cca-48dc-8047-ecf07e50b820.gif>
- <img src=https://file.garden/aA_5BlelMxIUBG_x/dbe956u-9f3e8e7a-f1a9-44b2-8e08-55ea99e8ddee.gif">
+ <img src="https://64.media.tumblr.com/b4c254dc9a85417d9b67deba95638eba/36f984418ac63ad9-79/s640x960/f094037e443ae544f7a08d65f2dcd9ec7b0e60cb.png >
+<img src=" >
+ <img src= ">
 
 <h3 align="center">Grian /Gri/Ari ☆ He/She/They ☆ 20+</h3>
 
