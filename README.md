@@ -15,7 +15,6 @@
  
 <img src="https://file.garden/aA_5BlelMxIUBG_x/dgnjwn2-8d6468c6-b795-4e78-b9eb-38df02119a84%20(1).png" width="100%">
  
-<img src="https://file.garden/aA_5BlelMxIUBG_x/df7ax1s-a2f17571-8cca-48dc-8047-ecf07e50b820.gif.png" align="right">
 
  
  </p>Interests:Dandys world,Cookie Run,Hermitcraft/ Life series,My hero academia,DanDaDan,Apothecary Diaries,Murder Drones,The Amazing Digital Circus,Overwatch and more 
