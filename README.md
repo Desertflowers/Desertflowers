@@ -18,6 +18,7 @@
 <img src="https://file.garden/aA_5BlelMxIUBG_x/d84dbm2-5695de0d-01b5-4ba3-92ee-a15a44b87c43.png" width="100%">
 
 </p>
+<p align="center">
  Check out my  socials 
 ☆ <a href="https://artfight.net/~DesertFlowers">Artfight</a> ☆
  <a href="https://stuckinthedesert.straw.page">Strawpage!</a>
