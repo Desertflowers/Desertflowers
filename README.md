@@ -25,5 +25,5 @@
 ☆ <a href="https://www.instagram.com/_.desert_flowers._">Art Instagram</a> ☆
  </p>
  
- </p>Interests:Dandys world,Cookie Run,DanDaDan,Apothecary Diaries,Glitch Studio productions,Overwatch,Dispatch and much MUCH more
+ 
 
